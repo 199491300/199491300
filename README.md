@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm Jingyi Ai ! 😉🎓 I am a PhD student in kinesiology working with Dr. Chang in Physical Activity and Cognitive Neuroscience Laboratory at The National Taiwan Normal University. Also, I am the EEGlab amateur！
+I'm Jingyi Ai ! 😉🎓 I am a PhD student in kinesiology working with Dr. Chang in Physical Activity and Cognitive Neuroscience Laboratory at National Taiwan Normal University. Also, I am the EEGlab amateur！
 
 I graduated with a BEng degree in kinesiology from Brijing Normal University (Beijing, China) in 2016. After that, I received a MSci degree from Nanjing Normal University (Nanjing, China) in 2019.
 
